@@ -18,7 +18,7 @@
 
 4. Add butter 1/4 stick at a time, softening first in microwave (10 seconds) and cut into smaller chunks.
 
-5. Peel apples, slice into 1/2 rings, and place in buttered baking dish.
+5. Peel 4 to 5 apples, slice into 1/2 rings, and place in buttered baking dish.
 
 6. Spread oatmeal mix on top of apples and pat down lighly.
 
