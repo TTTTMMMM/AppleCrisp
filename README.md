@@ -15,7 +15,6 @@
    | brown sugar           |  1/2 cup   |
    | salt                  |  1/4 tsp   |
    | butter (1 stick)      |  1/2 cup   |
-   | apples                |   4 cups   |
 
 4. Add butter 1/4 stick at a time, softening first in microwave (10 seconds) and cut into smaller chunks.
 
