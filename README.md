@@ -4,7 +4,7 @@
 
 ![ingredients](./pics/000.png "Ingredients")
 
-2. Pre-heat oven to 350 F
+2. Pre-heat oven to 350&deg;F
 
 3. Mix the following ingredients in a mixing bowl
 
